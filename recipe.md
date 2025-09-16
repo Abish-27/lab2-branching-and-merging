@@ -18,3 +18,8 @@
 6. In a separate bowl, beat the eggs and add them to the mixture. Stir until well combined.
 7. Gradually add the milk and vegetable oil to the mixture, continuing to stir.
 8. Pour the batter into a greased and floured 9x13-inch baking pan.
+9. Tap the pan gently on the counter to release any air bubbles.
+10. Bake for 30–35 minutes, or until a toothpick inserted in the center comes out with a few moist crumbs (not wet batter).
+11. Remove from oven and let cool in the pan for 10–15 minutes.
+12. Transfer to a wire rack to cool completely before slicing.
+13. Enjoy your cake!!!!
